@@ -1,2 +1,5 @@
-# ANANTAGUNA.GitHub.io
-ANANTAGUNA.GitHub.io ?SATPREM? ?ALBER CAMUS? ?All?
+# https://ANANTAGUNA.github.io/
+
+https://ANANTAGUNA.github.io/ ?SATPREM? ?ALBER CAMUS? ?All?
+
+$tfiris Transfinite Iridescent Ascension Repository History intended for public access at https://ANANTAGUNA.github.io/
